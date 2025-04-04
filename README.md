@@ -1,0 +1,2 @@
+# SnakeVib
+privacy policy
